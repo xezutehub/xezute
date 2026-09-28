@@ -1,2 +1,5 @@
 # xezute
-no
+รวมสคริปmap-
+สายเลือดอาชีวะ pvp✅ fram🔴
+ดวลมีดสีเเดง pvp🔴
+block spin 🔴
